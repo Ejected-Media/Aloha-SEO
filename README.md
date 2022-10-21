@@ -3,4 +3,4 @@
 Reach Your Customers With Aloha SEO
 _
 
-Please Sho Our Brand - https://aloha-seo.launchcart.store/shop
+Please Shop Our Brand - https://aloha-seo.launchcart.store/shop
